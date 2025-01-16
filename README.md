@@ -1,4 +1,4 @@
-- hi, I’m @blakelocwenzel
+- hi, im @blakelocwenzel
 - interested in quant finance, vintage t shirts, and digital art
 - currently learning business analytics
 - looking to make meaningful and impactful work
