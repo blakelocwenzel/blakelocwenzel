@@ -1,5 +1,4 @@
 - hi, im @blakelocwenzel
-- interested in quant finance, vintage t-shirts, and digital art.
 - currently learning business analytics.
 - looking to make impactful work.
   
